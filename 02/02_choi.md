@@ -1,0 +1,1 @@
+2회차 강의 정리본: https://www.notion.so/2-0603-35db2b809ab0452cb53f048d5be019d3
